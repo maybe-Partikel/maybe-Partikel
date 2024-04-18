@@ -21,7 +21,7 @@ Join us at Novelnia, where we celebrate gaming, creativity, and friendship! Our 
 
 - 🌐 Website: [Novelnia](https://novelnia.net)
 - 🎮 Minecraft Server: [play.novelnia.net](https://play.novelnia.net)
-- 🐦 Twitter: [Novelnia-Chan]([https://twitter.com/Novelnia](https://twitter.com/Novelniachan))
+- 🐦 Twitter: [Novelnia-Chan](https://twitter.com/Novelniachan))
 
 ## Let's Collaborate
 
